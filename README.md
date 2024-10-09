@@ -1,5 +1,5 @@
 
-# ⚡️ Maziar Sojoudian
+# ⚡️ Vedant Acharya
 
 <!-- ### Hi there 👋
 
